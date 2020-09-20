@@ -1,0 +1,2 @@
+# law
+Not god
